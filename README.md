@@ -1,0 +1,1 @@
+Nangloud akong langga ba
